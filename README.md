@@ -4,7 +4,7 @@
 
 <p align="center">
 
-  <img width="850" height="220" src="https://i.pinimg.com/1200x/4b/65/4f/4b654fb3b08dd4582b9ef06c661c0ae1.jpg"> 
+  <img width="750" height="750" src="https://64.media.tumblr.com/5cae6c35d4e537ee85251db71645bc5d/a6cf97b3b4b3c239-f9/s1280x1920/11fded8d9c74fcdf16e71ad252d0d231e8bc717d.gifv"> 
   
   <p align="center">
   welcome to my page!!

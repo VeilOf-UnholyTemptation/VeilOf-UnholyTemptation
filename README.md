@@ -14,7 +14,7 @@
   <img width="720" height="50" src="https://64.media.tumblr.com/7b507c379d682e4ef55e772b3537c6a7/d416d34ccc1cc73d-1c/s250x400/89711a41ab822bd767d716feb552dfe3e2ab6c02.gifv">
 
 <p align="center">
-Boss / Boothill ⋆ He/Him ⋆ 15
+Boss ⋆ He/Him ⋆ 15
 <p align="center">
 INFP ⋆ Enneagram type 9
 <p align="center">

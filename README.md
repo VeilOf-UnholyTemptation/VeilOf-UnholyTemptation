@@ -1,5 +1,3 @@
-![](https://lastfm-recently-played.vercel.app/api?user=bugged_outtt&count=1)
-
 ![](https://komarev.com/ghpvc/?username=TH3B0SS-M4N&color=yellow)
 
 <p align="center">

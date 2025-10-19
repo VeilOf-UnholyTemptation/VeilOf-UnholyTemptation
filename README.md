@@ -1,10 +1,10 @@
 ![](https://lastfm-recently-played.vercel.app/api?user=bugged_outtt&count=1)
 
-![](https://komarev.com/ghpvc/?username=TH3B0SS-M4N&color=red)
+![](https://komarev.com/ghpvc/?username=TH3B0SS-M4N&color=yellow)
 
 <p align="center">
 
-  <img width="850" height="300" src="https://64.media.tumblr.com/ee6ad469e0dc1c000f3822c016deadfb/b85385295494c507-06/s2048x3072/3067762cb8aba6c25a1a6bab80d6df6e5aa3aabf.gifv"> 
+  <img width="850" height="300" src="https://i.pinimg.com/736x/31/af/84/31af84fbb07f41468cdc3b44def25b6e.jpg"> 
   
   <p align="center">
   welcome to my page!!

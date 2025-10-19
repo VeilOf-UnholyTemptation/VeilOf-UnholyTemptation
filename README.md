@@ -22,4 +22,4 @@ SINGLE ⋆ HTML coder
 <p align="center">
 curently learning Javascript AND CSS!
 
-  <img width="850" height="300" src="https://64.media.tumblr.com/f6e16cd2a8ef4683f8134daea11842e8/b85385295494c507-30/s2048x3072/7cade7acff0a75da5de30b481cb0c265512f7b97.pnj">
+  <img width="850" height="80" src="https://64.media.tumblr.com/31eb2017a1a16b4c6866916e5b13c9ee/f6651e7bba6d3217-7c/s2048x3072/dbd69925edc5f5456a24cad7f49793931c23fcc6.pnj">

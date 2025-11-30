@@ -16,7 +16,7 @@ Boss ⋆ He/Him ⋆ 16
 <p align="center">
 INFP ⋆ Enneagram type 9
 <p align="center">
-SINGLE ⋆ HTML coder 
+HTML & CSS coder 
 <p align="center">
 curently learning Javascript AND CSS!
 

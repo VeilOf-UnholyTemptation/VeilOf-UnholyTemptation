@@ -9,6 +9,8 @@
 ꒰ ⸝⸝   Confetti / Julie ꒱
 <p align="center">
 ୧ any + all pronouns!
+<p align="center">
+INFP ⋆ Enneagram type 9
   
   <p align="center">
 

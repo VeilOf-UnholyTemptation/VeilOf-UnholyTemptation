@@ -14,7 +14,6 @@ INFP ⋆ Enneagram type 9
   
   <p align="center">
 
-  
 <p align="center">
 
 <img width="1211" height="562" alt="image" src="https://github.com/user-attachments/assets/6e4de4ff-898d-4872-9fc7-0087acf7967f" />

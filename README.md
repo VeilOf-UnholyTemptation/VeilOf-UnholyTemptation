@@ -12,7 +12,7 @@
 <p align="center">
 INFP ⋆ Enneagram type 9
 <p align="center">
-ANTI-harassment! ꒰ 🍖🌈
+ANTI-harassment + ANTI-censorship! ꒰ 🍖🌈
 <p align="center">
 minor ! 6teen
   

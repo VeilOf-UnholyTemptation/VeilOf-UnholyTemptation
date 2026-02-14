@@ -15,6 +15,18 @@ INFP ⋆ Enneagram type 9
 ANTI-harassment + ANTI-censorship! ꒰ 🍖🌈
 <p align="center">
 minor ! 6teen
+
+<p></p>
+
+<img width="250" height="150" src="https://github.com/user-attachments/assets/ec9cdbc5-5990-4d98-8120-286dbdf9e990">
+<img width="250" height="150" src="https://github.com/user-attachments/assets/bb3b57cc-a2f5-4f45-a41d-421afc7afda7">
+<img width="250" height="150" src="https://github.com/user-attachments/assets/ab2b04e2-5ff0-4c38-9c68-63cc2841f0e0">
+<img width="250" height="150" src="https://github.com/user-attachments/assets/b87aacc3-7720-4f94-8b6c-d25d9b83abc1">
+
+
+
+
+
   
   <p align="center">
 <img width="1211" height="562" alt="image" src="https://github.com/user-attachments/assets/6e4de4ff-898d-4872-9fc7-0087acf7967f" />

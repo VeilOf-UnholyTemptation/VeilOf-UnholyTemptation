@@ -22,11 +22,9 @@ minor ! 6teen
 <img width="250" height="150" src="https://github.com/user-attachments/assets/bb3b57cc-a2f5-4f45-a41d-421afc7afda7">
 <img width="250" height="150" src="https://github.com/user-attachments/assets/ab2b04e2-5ff0-4c38-9c68-63cc2841f0e0">
 <img width="250" height="150" src="https://github.com/user-attachments/assets/b87aacc3-7720-4f94-8b6c-d25d9b83abc1">
+<img width="250" height="150" src="https://github.com/user-attachments/assets/83fb7f34-626a-49fe-b3d0-ba11a902c90a">
+<img width="250" height="150" src="https://github.com/user-attachments/assets/d8d26480-2cfd-4a05-83c8-04bb17b250d2">
 
 
-
-
-
-  
   <p align="center">
 <img width="1211" height="562" alt="image" src="https://github.com/user-attachments/assets/6e4de4ff-898d-4872-9fc7-0087acf7967f" />
